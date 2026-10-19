@@ -1,6 +1,6 @@
 Sprouting Habits Privacy Policy
 
-Last updated: October 19, 2026*
+Last updated: October 19, 2026
 
 Sprouting Habits is a habit-tracking app. Your privacy matters, so the app is designed to work entirely on your device.
 
